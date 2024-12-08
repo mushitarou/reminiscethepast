@@ -4,5 +4,5 @@
  [![GWa-J8i-W4-AAYMES.jpg](https://i.postimg.cc/LX5JHwYM/GWa-J8i-W4-AAYMES.jpg)](https://postimg.cc/CByh7vsv)
 
 ㅤㅤㅤ ִ࣪ ࣪𖤐 ㅤ***and i was ready to be one . . . ᯓ★***    
-ㅤㅤㅤ[rentry](https://rentry.co/billfordyurii) | [new rentry](https://rentry.co/chuuyaglazer) ㅤㅤㅤㅤㅤ[strawpage](https://chuuyaglazer.straw.page)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[my atabook!>O<](https://uponthetaintedsorrow.atabook.org/)
+ㅤㅤㅤ[rentry](https://rentry.co/billfordyurii) | [new rentry](https://rentry.co/chuuyaglazer) ㅤㅤㅤㅤㅤ[strawpage](https://chuuyaglazer.straw.page)ㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤㅤ[my atabook!>O<](https://uponthetaintedsorrow.atabook.org/)
 ![](https://wilardo.crd.co/assets/images/gallery22/665c69e4.gif?v=d19c95ca)
