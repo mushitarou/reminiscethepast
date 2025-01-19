@@ -2,4 +2,4 @@
 
 <h6>ㅤ ㅤㅤㅤchuuya nakahara (bsd) enthusiast (⁠ノ⁠^⁠_⁠^⁠)⁠ノ
 
-ㅤㅤㅤㅤ:: [cardd](https://chuuyyaa.carrd.co/) , [strawpage](https://chuuyaglazer.straw.page) , [atabook!>O<](https://uponthetaintedsorrow.atabook.org/)
+ㅤㅤㅤㅤ:: [cardd](https://chuuyyaa.carrd.co/) , [strawpage](https://chuuyaglazer.straw.page) , [atabook!>O<](https://uponthetaintedsorrow.atabook.org/) [prns.cc](https://pronouns.cc/@uponthetaintedsorrow)
