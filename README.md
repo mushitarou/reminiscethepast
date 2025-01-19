@@ -1,1 +1,1 @@
-![](https://images.app.goo.gl/xZeukmHRBJZhPteN6)
+![](https://images.app.goo.gl/6FYoRQbTUsWpS78B9)
